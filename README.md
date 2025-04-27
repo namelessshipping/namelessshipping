@@ -1,8 +1,5 @@
 ## my rival should be strong to keep me sharp!
 
-<!--
-**namelessshipping/namelessshipping** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
 ill make this prettier one day, so here's some quick info. though, please read my links!
 
 - c+h always, and encouraged!
@@ -13,4 +10,3 @@ ill make this prettier one day, so here's some quick info. though, please read m
 - love making friends, will accept friend requests immediately er...
 - may have trouble talking to people, im sorry if i come across as weird
 - CHECCKKKK SP/RENTRY FOR MORE DETAILSSS
--->
